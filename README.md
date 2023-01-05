@@ -1,1 +1,0 @@
-# It Draws Little Krishna
